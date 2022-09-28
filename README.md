@@ -1,1 +1,0 @@
-# csk-electronic
